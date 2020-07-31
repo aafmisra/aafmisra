@@ -1,4 +1,4 @@
-### Hi there! :wave: :woman_technologist: :elephant:
+### Hi there! :wave: :woman_technologist:
 
 My name is Asha. 
 - My pronouns are she/her/hers
