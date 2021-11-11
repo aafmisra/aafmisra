@@ -17,6 +17,7 @@ If you want to talk about any of these things, I'm your girl:
  - :movie_camera: Movies !!!
  - :tent: Disability-friendly camping and hiking 
  - :older_woman: Knitting
+ - 🎸 Johnny Flynn
  
  ---
   📫 Find me on [LinkedIn](https://www.linkedin.com/in/asha-misra/)
