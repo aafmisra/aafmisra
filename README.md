@@ -2,7 +2,6 @@
 
 My name is Asha. 
 - My pronouns are she/her/hers
-- After a career in museums and zoos, I've entered the tech world.
 
 ---
 
