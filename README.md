@@ -10,13 +10,11 @@ If you want to talk about any of these things, I'm your girl:
  - :european_post_office: Weird niche museums
  - 🌱 Houseplants and how to (maybe) not kill them
  - :wheelchair: Accessibility issues, physical and digital
- - :foot: Hereditary neuropathy
+ - :foot: Progressive hereditary demyelinating peripheral neuropathy
  - :taco: Literally any type of food
  - :dog2: The best dog names
  - :movie_camera: Movies !!!
- - :tent: Disability-friendly camping and hiking 
- - :older_woman: Knitting
- - 🎸 Johnny Flynn
+ - :older_woman: Knitting and needle felting
  
  ---
   📫 Find me on [LinkedIn](https://www.linkedin.com/in/asha-misra/)
